@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @SomaGnoma
+- 👀 I’m interested in brwl strs
+- 🌱 I’m currently learning brwl strs
